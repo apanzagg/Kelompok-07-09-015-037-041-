@@ -1,1 +1,1 @@
-# Kelompok Kecerdasan Buatan
+# Kelompok Kecerdasan Buatann
